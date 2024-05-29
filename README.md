@@ -1,9 +1,9 @@
 - 👋 Hi, I’m emilly
 - 👀 I’m interested in piscologia
-- 🌱 I’m currently learning ...
+- 🌱 I’m currently learning estudar igual gente
 - 💞️ I’m looking to collaborate on nada
 - 📫 How to reach me emilly.landolfi.emilly.santos@escola.pr.gov.br
--😄 Pronouns:ela/dela
+
 - ⚡ Fun fact: ...
 
 <!---
