@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on nada
 - 📫 How to reach me emilly.landolfi.emilly.santos@escola.pr.gov.br
 
-- ⚡ Fun fact: ...
+- ⚡ Fun fact: sou uma clt de 16aninhos amem
 
 <!---
 aquelaemilly/aquelaemilly is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
