@@ -1,7 +1,6 @@
 ### 👋 Hi, I’m emilly ###
 - 👀 I’m interested in piscologia
-- 🌱 I’m currently learning estudar igual gente
-- 💞️ I’m looking to collaborate on nada
+- 🌱 I’m currently learning administração de contabeis
 - 📫 How to reach me contanto emilly.landolfi.emilly.santos@escola.pr.gov.br
 
 - ⚡ Fun fact: sou uma clt de 16aninhos amem
