@@ -1,8 +1,7 @@
 ### 👋 Hi, I’m emilly ### 
 - ☮️ I’m interested in piscologia
 - 💻 I’m currently learning administração de contabeis
-- 📫 How to reach me contanto emilly.landolfi.emilly.santos@escola.pr.gov.br
-
+- 📫 How to reach me contanto chama no insta _aquelaemilly
 - ⚡ Fun fact: sou uma clt de 16aninhos amem
 
-if![](https://tenor.com/pt-BR/view/corinthians-gif-12849187)
+if![](https://tenor.com/pt-BR/view/corinthians-gif-12849187)[]!
