@@ -5,4 +5,5 @@
 
 -emilly.landolfi.santos@escola.pr.gov.br
 
-![ ](https://tenor.com/pt-BR/view/memfhis-depay-gif-4615538689498890143)
+
+![image](https://github.com/user-attachments/assets/876258e1-c5ad-4747-a99c-075c081581ab)
